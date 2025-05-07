@@ -1,0 +1,2 @@
+# INFORMATIKA
+tugas informatika
